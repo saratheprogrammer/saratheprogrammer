@@ -1,7 +1,6 @@
 # Hi there, I'm [madmone sara]! 👋
 🌍 **Based in:** morocco
-📧 **Contact:** [madmonesara2@gmail.com] | [LinkedIn]([(https://www.linkedin.com/in/sara-madmone-a6a501256?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BNsDd%2FzfqSnCQfT4n4xeH9w%3D%3D))  
-
+📧 **Contact:** [madmonesara2@gmail.com] | [LinkedIn https://www.linkedin.com/in/sara-madmone-a6a501256/ ]
 
 
 ## About Me 🚀
